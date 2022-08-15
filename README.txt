@@ -1,1 +1,1 @@
-Hey, Welcome!
+Hey, Welcome to my blog!
